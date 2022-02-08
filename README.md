@@ -1,1 +1,1 @@
-This is a message from Charlie686, you are playing at your own risk!
+Hello, this is ~g~Charlie686~w~ from the internet wishing you a ~p~fantastic~w~ patrol!
